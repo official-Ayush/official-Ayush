@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Ayush Kumar
-- 👀 I’m interested in nothing
 - 🌱 I’m currently learning how to farm on cloud
 - 💞️ I’m looking to collaborate 
 - 📫 How to not reach me 
